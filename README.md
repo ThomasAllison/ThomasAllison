@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ThomasAllison
+- 👀 I’m interested in Software Engineering, but also cooking and photography 
+- 📫 How to reach me thomas68allison@gmail.com
