@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ThomasAllison
-- 👀 I’m interested in Software Engineering, but also cooking and photography 
+- 👀 I’m interested in Software Engineering, but also cooking and photography (checkout my food [Instagram](https://www.instagram.com/prettygood_mmfood/) where I combine both!)
 - 📫 How to reach me thomas68allison@gmail.com
